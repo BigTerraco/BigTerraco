@@ -1,16 +1,26 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**BigTerraco/BigTerraco** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  ![](https://komarev.com/ghpvc/?username=BigTerracoe&color=02ffff)
+</div>
 
-Here are some ideas to get you started:
+******
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/anime_glint_ahh.gif" target="_blank"><img width="500" src="https://file.garden/Zy_Q1dCuUwZRDNyl/anime_glint_ahh.gif"></a>
+</div> 
+
+<div align="center">
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/bow_divider.webp" target="_blank"><img width="500" src="https://file.garden/Zy_Q1dCuUwZRDNyl/bow_divider.webp"></a>
+</div> 
+
+
+<div align="center">
+i'm lowkey too lazy to add info right now haha
+</div>
+
+******
+
+<div align="center">
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/sparkle_divider.gif" target="_blank"><img width="500" src="https://file.garden/Zy_Q1dCuUwZRDNyl/sparkle_divider.gif"></a>
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/kaboom.gif" target="_blank"><img width="500" src="https://file.garden/Zy_Q1dCuUwZRDNyl/kaboom.gif"></a>
+</div> 
