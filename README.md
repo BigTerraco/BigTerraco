@@ -29,7 +29,7 @@ will probs add links here at some point idk, this is a big WIP lol... adding stu
 
 ⊹ People who <i>assume stuff without solid proof</i>. Please please PLEASE talk to me if you think I've done something, instead of hiding/unadding/etc me because of something you assume I am/have done!!
 
-⊹ Ships/roleplay <b>IWC</b>. I, 99% of the time, will not join, and it makes my quite uncomfortable and I'll probably pretend to be AFK. ^^
+⊹ Ships/roleplay <b>IWC</b>. I, 99% of the time, will not join, and it makes me pretty uncomfy! I'll probably pretend to be AFK/ignore you or something... ^^
 
 ⊹ Doubles DNI.
 
