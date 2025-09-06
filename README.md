@@ -36,6 +36,70 @@ will probs add links here at some point idk, this is a big WIP lol... adding stu
 ⊹ Syscourse/Shipcourse. I don't have the energy for it, nor do I have opinions on it.
 
 ******
+<p align="center">${{\color{#27284f}\Huge{\texttt{༝ ⊹ BYI ⊹ ༝}}}}$</h2>
+
+<div align="center">
+<p align="center"><sup> ${{\color{#02ffff}\small{\texttt{Stuff you might need to know about me!}}}}$ </sup></p>
+</div>
+
+******
+⊹ I cannot stress this enough, but <b>I'm NOT a proshipper</b>, no matter what people may think or say.
+
+⊹ Undiagnosed (but we're getting there!) AuDHD.
+
+⊹ Severe anxiety, it's safe to interact with caution at any time unless we're very close!
+
+⊹ Physically disabled, may have dizzy spells and go AFK/etc. I'm all good tho!! :3
+
+⊹ Fictkin & synpath of many. List will be below (when I get the time & images for it)
+
+⊹ Mild CvD (Cover Discomfort) with people I don't know. For jokes, with friends and regiments, are all good!
+
+⊹ Active in Regiments!! Currently staff in RF & EBAY, so feel free to DM me (@terraco) to join!! And I'm working on my own Pressure-themed regi, UBSD! It's unfinished though. :O
+
+⊹ Currently HEAVILY hyperfixated on TADC, Pressure and STH!! Other lesser hyperfixations include Poppy Playtime, Dandy's World, Deltarune, and Warrior Cat's.
+
+******
+<p align="center">${{\color{#27284f}\Huge{\texttt{༝ ⊹ FAMILY AND FRIENDS! ⊹ ༝}}}}$</h2>
+
+<div align="center">
+<p align="center"><sup> ${{\color{#02ffff}\small{\texttt{Probably gonna turn this into lovemail at some point but I'm lazyyy...}}}}$ </sup></p>
+</div>
+
+******
+⊹ [@Valmpyre](https://github.com/valmpyre)
+
+⊹ [@Cobathezebra](https://github.com/cobathezebra)
+
+⊹ [@cannibalconvict](https://github.com/cannibalconvict)
+
+⊹ [@zerumtime](https://github.com/zerumtime)
+
+⊹ [@LunacidCollective](https://github.com/LunacidCollective)
+
+⊹ [@SillyToms](https://github.com/SillyToms)
+
+⊹ [@EllenEngland](https://github.com/EllenEngland) (i feel like u have a new gh but i cant find...)
+
+⊹ [@sunrivse](https://github.com/sunrivse)
+
+⊹ [@anthonyscoffin](https://github.com/anthonyscoffin)
+
+⊹ [@CommanderBottleCap](https://github.com/CommanderBottleCap)
+
+⊹ [@SorenThroughDreams](https://github.com/SorenThroughDreams)
+
+⊹ [@PikoPikoHammer](https://github.com/PikoPikoHammer)
+
+⊹ [@selfproclaimedjerk](https://github.com/selfproclaimedjerk)
+
+⊹ [@mariyumemii](https://github.com/mariyumemii)
+
+⊹ [@astxrox](https://github.com/astxrox)
+
+⊹ OTHERS WITH NO GITHUB!! (kinich, [ethan](https://guns.lol/woofbark), butch, moff, ollie, ez, glitchy) <3
+
+******
 
 <div align="center">
   <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/sparkle_divider.gif" target="_blank"><img width="500" src="https://file.garden/Zy_Q1dCuUwZRDNyl/sparkle_divider.gif"></a>
