@@ -36,6 +36,12 @@ will probs add links here at some point idk, this is a big WIP lol... adding stu
 ⊹ Syscourse/Shipcourse. I don't have the energy for it, nor do I have opinions on it.
 
 ******
+
+<div align="center">
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/610384d3967c77d16bb6420d9e6ad91edfc01232.gifv" target="_blank"><img width="600" src="https://file.garden/Zy_Q1dCuUwZRDNyl/610384d3967c77d16bb6420d9e6ad91edfc01232.gifv"></a>
+</div> 
+
+******
 <p align="center">${{\color{#27284f}\Huge{\texttt{༝ ⊹ BYI ⊹ ༝}}}}$</h2>
 
 <div align="center">
@@ -58,6 +64,12 @@ will probs add links here at some point idk, this is a big WIP lol... adding stu
 ⊹ Active in Regiments!! Currently staff in RF & EBAY, so feel free to DM me (@terraco) to join!! And I'm working on my own Pressure-themed regi, UBSD! It's unfinished though. :O
 
 ⊹ Currently HEAVILY hyperfixated on TADC, Pressure and STH!! Other lesser hyperfixations include Poppy Playtime, Dandy's World, Deltarune, and Warrior Cat's.
+
+******
+
+<div align="center">
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/610384d3967c77d16bb6420d9e6ad91edfc01232.gifv" target="_blank"><img width="600" src="https://file.garden/Zy_Q1dCuUwZRDNyl/610384d3967c77d16bb6420d9e6ad91edfc01232.gifv"></a>
+</div> 
 
 ******
 <p align="center">${{\color{#27284f}\Huge{\texttt{༝ ⊹ FAMILY AND FRIENDS! ⊹ ༝}}}}$</h2>
