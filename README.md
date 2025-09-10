@@ -2,6 +2,9 @@
 
   ![](https://komarev.com/ghpvc/?username=BigTerracoe&color=02ffff)
 </div>
+<div align="center">
+no i won't help with party limit, and yes that is probably a caine skin that i'm in that's probably why you think it looks like caine
+</div>
 
 ******
 
