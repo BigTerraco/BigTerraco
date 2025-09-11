@@ -66,7 +66,11 @@ will probs add links here at some point idk, this is a big WIP lol... adding stu
 
 ⊹ Active in Regiments!! Currently staff in RF & EBAY, so feel free to DM me (@terraco) to join!! And I'm working on my own Pressure-themed regi, UBSD! It's unfinished though. :O
 
-⊹ Currently HEAVILY hyperfixated on TADC, Pressure and STH!! Other lesser hyperfixations include Poppy Playtime, Dandy's World, Deltarune, and Warrior Cat's.
+⊹ Currently HEAVILY hyperfixated on TADC, Pressure and STH!! Other lesser hyperfixations include Poppy Playtime, Dandy's World, Deltarune, Pokemon (specifically Sun/Moon games and Secret of The Jungle movie!), and Warrior Cat's (up to Power of Three).
+
+⊹ Semi-frequent age regressor. :3
+
+⊹ Furry.
 
 ******
 
