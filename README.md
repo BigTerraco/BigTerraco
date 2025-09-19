@@ -116,6 +116,8 @@ will probs add links here at some point idk, this is a big WIP lol... adding stu
 
 ⊹ [@astxrox](https://github.com/astxrox)
 
+⊹ [@ThePluralEcosystem](https://github.com/ThePluralEcosystem)
+
 ⊹ OTHERS WITH NO GITHUB!! (kinich, [ethan](https://guns.lol/woofbark), butch, moff, ollie, ez, glitchy) <3
 
 ******
