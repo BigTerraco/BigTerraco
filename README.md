@@ -3,7 +3,7 @@
   ![](https://komarev.com/ghpvc/?username=BigTerracoe&color=02ffff)
 </div>
 <div align="center">
-no i won't help with party limit, and yes that is probably a caine skin that i'm in that's probably why you think it looks like caine
+no i won't help with party limit :// stranger danger bro have u never heard of that (but for realsies im not gonna help so dont bother asking unless we're like rlly close ok? ok!)
 </div>
 
 ******
@@ -16,8 +16,9 @@ no i won't help with party limit, and yes that is probably a caine skin that i'm
   <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/bow_divider.webp" target="_blank"><img width="500" src="https://file.garden/Zy_Q1dCuUwZRDNyl/bow_divider.webp"></a>
 </div> 
 
+<p align="center">${{\color{#02ffff}\Huge{\texttt{༝ ⊹ ME'S ⊹ ༝}}}}$</h2>
 <div align="center">
-will probs add links here at some point idk, this is a big WIP lol... adding stuff to this gradually!
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/sageicon.png" target="_blank"><img width="50" src="https://file.garden/Zy_Q1dCuUwZRDNyl/sageicon.png"></a>ㅤㅤ<a href="https://file.garden/Zy_Q1dCuUwZRDNyl/caineicon.png" target="_blank"><img width="42" src="https://file.garden/Zy_Q1dCuUwZRDNyl/caineicon.png"></a>ㅤㅤ<a href="https://file.garden/Zy_Q1dCuUwZRDNyl/pipisicon.png" target="_blank"><img width="50" src="https://file.garden/Zy_Q1dCuUwZRDNyl/pipisicon.png"></a>ㅤㅤ<a href="https://file.garden/Zy_Q1dCuUwZRDNyl/sebicon.png" target="_blank"><img width="80" src="https://file.garden/Zy_Q1dCuUwZRDNyl/sebicon.png"></a>ㅤㅤ<a href="https://file.garden/Zy_Q1dCuUwZRDNyl/jackicon.png" target="_blank"><img width="50" src="https://file.garden/Zy_Q1dCuUwZRDNyl/jackicon.png"></a>ㅤㅤ<a href="https://file.garden/Zy_Q1dCuUwZRDNyl/dandyicon.png" target="_blank"><img width="50" src="https://file.garden/Zy_Q1dCuUwZRDNyl/dandyicon.png"></a>ㅤㅤ<a href="https://file.garden/Zy_Q1dCuUwZRDNyl/gourdyicon.png" target="_blank"><img width="50" src="https://file.garden/Zy_Q1dCuUwZRDNyl/gourdyicon.png"></a>
 </div>
 
 ******
@@ -71,54 +72,6 @@ will probs add links here at some point idk, this is a big WIP lol... adding stu
 ⊹ Semi-frequent age regressor. :3
 
 ⊹ Furry.
-
-******
-
-<div align="center">
-  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/610384d3967c77d16bb6420d9e6ad91edfc01232.gifv" target="_blank"><img width="600" src="https://file.garden/Zy_Q1dCuUwZRDNyl/610384d3967c77d16bb6420d9e6ad91edfc01232.gifv"></a>
-</div> 
-
-******
-<p align="center">${{\color{#27284f}\Huge{\texttt{༝ ⊹ FAMILY AND FRIENDS! ⊹ ༝}}}}$</h2>
-
-<div align="center">
-<p align="center"><sup> ${{\color{#02ffff}\small{\texttt{Probably gonna turn this into lovemail at some point but I'm lazyyy...}}}}$ </sup></p>
-</div>
-
-******
-⊹ [@Valmpyre](https://github.com/valmpyre)
-
-⊹ [@Cobathezebra](https://github.com/cobathezebra)
-
-⊹ [@cannibalconvict](https://github.com/cannibalconvict)
-
-⊹ [@zerumtime](https://github.com/zerumtime)
-
-⊹ [@LunacidCollective](https://github.com/LunacidCollective)
-
-⊹ [@SillyToms](https://github.com/SillyToms)
-
-⊹ [@EllenEngland](https://github.com/EllenEngland) (i feel like u have a new gh but i cant find...)
-
-⊹ [@sunrivse](https://github.com/sunrivse)
-
-⊹ [@anthonyscoffin](https://github.com/anthonyscoffin)
-
-⊹ [@CommanderBottleCap](https://github.com/CommanderBottleCap)
-
-⊹ [@SorenThroughDreams](https://github.com/SorenThroughDreams)
-
-⊹ [@PikoPikoHammer](https://github.com/PikoPikoHammer)
-
-⊹ [@selfproclaimedjerk](https://github.com/selfproclaimedjerk)
-
-⊹ [@mariyumemii](https://github.com/mariyumemii)
-
-⊹ [@astxrox](https://github.com/astxrox)
-
-⊹ [@ThePluralEcosystem](https://github.com/ThePluralEcosystem)
-
-⊹ OTHERS WITH NO GITHUB!! (kinich, [ethan](https://guns.lol/woofbark), butch, moff, ollie, ez, glitchy) <3
 
 ******
 
