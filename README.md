@@ -1,5 +1,7 @@
 <div align="center">
 
+idk i need to rmk this so like beware or something ok!
+
   ![](https://komarev.com/ghpvc/?username=BigTerracoe&color=02ffff)
 </div>
 <div align="center">
