@@ -1,6 +1,6 @@
 <div align="center">
 
-idk i need to rmk this so like beware or something ok!
+lack of info because im remaking this!
 
   ![](https://komarev.com/ghpvc/?username=BigTerracoe&color=02ffff)
 </div>
@@ -21,7 +21,28 @@ Temporarily blocking anyone who asks for supporter help because I get it a lot..
 
 ******
 
-remaking okay...?
+</details>
+
+<details>
+<summary> ♡ㅤ ${\textsf{\color{#02ffff}ME'S}}$ !! </summary>
+
+ 
+  
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/sageicon.png" target="_blank"><img width="26" src="https://file.garden/Zy_Q1dCuUwZRDNyl/sageicon.png"></a>ㅤ ⊹ [SAGE ROBOTNIK](https://sonic.fandom.com/wiki/Sage) [Sonic The Hedgehog] ・ Heavy Fictkin.
+
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/caineicon.png" target="_blank"><img width="22" src="https://file.garden/Zy_Q1dCuUwZRDNyl/caineicon.png"></a> ㅤ ⊹ [CAINE](https://tadc.fandom.com/wiki/Caine) [The Amazing Digital Circus] ・ Heavy Fictkin.
+
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/pipisicon.png" target="_blank"><img width="26" src="https://file.garden/Zy_Q1dCuUwZRDNyl/pipisicon.png"></a>ㅤ ⊹ [CLOSET PIPIS](https://deltarune.fandom.com/wiki/Pipis(Item)) / "PREMIUM" [Deltarune] ・ Fictkin.
+
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/sebicon.png" target="_blank"><img width="32" src="https://file.garden/Zy_Q1dCuUwZRDNyl/sebicon.png"></a>ㅤ⊹ [SEBASTIAN SOLACE](https://urbanshade.org/wiki/Sebastian_Solace) [Pressure] ・ Fiction Flicker.
+
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/newdandyicon.png" target="_blank"><img width="26" src="https://file.garden/Zy_Q1dCuUwZRDNyl/newdandyicon.png"></a>ㅤ ⊹ [DANDY](https://dandys-world-robloxhorror.fandom.com/wiki/Dandy) [Dandy's World] ・ Fiction Flicker.
+
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/jackicon.png" target="_blank"><img width="25" src="https://file.garden/Zy_Q1dCuUwZRDNyl/jackicon.png"></a>ㅤ ⊹ [JACK AYERS](https://poppy-playtime.fandom.com/wiki/Jack_Ayers) [Poppy Playtime] ・ Fiction Flicker.
+
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/gourdyicon.png" target="_blank"><img width="25" src="https://file.garden/Zy_Q1dCuUwZRDNyl/gourdyicon.png"></a>ㅤ ⊹ [GOURDY](https://dandys-world-robloxhorror.fandom.com/wiki/Gourdy) [Dandy's World] ・ Agere Fictkin.
+ 
+</details>
 
 ******
 
