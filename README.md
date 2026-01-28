@@ -1,6 +1,6 @@
 <div align="center">
 
-lack of info because im remaking this!
+im getting a new repository commed ok? coming soon!! ill fancy up my github when its ready so i can match it all mwehehe
 
   ![](https://komarev.com/ghpvc/?username=BigTerracoe&color=02ffff)
 </div>
