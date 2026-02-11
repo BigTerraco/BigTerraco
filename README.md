@@ -3,6 +3,7 @@
 made by zixcore on discord! dm for comms
 FOR DA CAINE and one of the awesomest staff of rf YEAH
 credits to all artists and the tadc franchise
+credits to pixopix on tumblr for dividers
 here we go
 
 -->
